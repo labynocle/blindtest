@@ -1,4 +1,4 @@
-# First Hits :nerd:
+# First Hits :baby:
 
 [Playlist :: Blind Test :: First Hits](https://www.deezer.com/us/playlist/10049261842)
 
@@ -14,7 +14,7 @@
 
 ## Thème
 
-Premier gros hit RnB/HipHop :nerd: :flag_us:
+Premier gros hit RnB/HipHop :baby: :hamburger:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign:
 
@@ -43,7 +43,7 @@ le premier vrai gros carton
 
 ## Thème
 
-Premier et seul hit worldwide :nerd: :earth_americas:
+Premier et seul hit worldwide :trollface: :earth_americas:
 
 Niveau: :heavy_plus_sign:
 
@@ -70,7 +70,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 
 ## Thème
 
-Premier hit pop worldwide :nerd: :earth_americas:
+Premier hit pop worldwide :baby: :earth_americas:
 
 Niveau: :heavy_plus_sign:
 
@@ -99,7 +99,7 @@ le premier vrai gros carton
 
 ## Thème
 
-Premier hit pour des artistes de variétés françaises :nerd:
+Premier hit pour des artistes de variétés françaises :baby: :rooster:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign: :heavy_plus_sign:
 

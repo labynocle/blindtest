@@ -1,5 +1,5 @@
 
-# Girlz and Boyz Bands
+# Girlz and Boyz Bands :two_men_holding_hands: :two_women_holding_hands: :couple:
 
 [Playlist :: Blind Test :: Girlz and Boyz Bands](https://www.deezer.com/us/playlist/9887266302)
 
@@ -17,7 +17,7 @@
 
 ## Thème
 
-Boyz Bands FR :man:
+Boyz Bands FR :two_men_holding_hands: :rooster:
 
 Niveau: :heavy_plus_sign:
 
@@ -44,7 +44,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 
 ## Thème
 
-International Boyz Bands :man:
+International Boyz Bands :two_men_holding_hands: :earth_americas:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign:
 
@@ -71,7 +71,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 
 ## Thème
 
-International Girlz Bands :woman:
+International Girlz Bands :two_women_holding_hands: :earth_americas:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign:
 
@@ -98,7 +98,8 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 
 ## Thème
 
-Girlz ou Boyz bands avec du lyrics éclatés !
+Girlz ou Boyz bands avec du lyrics éclatés ! :two_men_holding_hands: :two_women_holding_hands:
+:earth_americas:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign: :heavy_plus_sign:
 
@@ -181,7 +182,7 @@ Arrête ta comédie, nous deux ça pourrait marcher
 
 ## Thème
 
-International Mixed Bands :man: :woman:
+International Mixed Bands :couple: :earth_americas:
 
 Niveau: :heavy_plus_sign:
 

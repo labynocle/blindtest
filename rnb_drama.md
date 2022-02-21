@@ -15,7 +15,7 @@
 
 ## Thème
 
-RnB drama US féminin classic :sob: :flag_us:
+RnB drama US féminin classic :sob: :hamburger:
 
 Niveau: :heavy_plus_sign:
 
@@ -42,7 +42,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 
 ## Thème
 
-RnB drama FR :flag_fr: qu'on aime
+RnB drama FR qu'on aime :sob: :rooster:
 
 Niveau: :heavy_plus_sign:
 
@@ -70,7 +70,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 ## Thème
 
 La chanson française qui veut des histoires de RnB... des classiques de variétés
-qui auraient pu être chantés par Vitaa
+qui auraient pu être chantés par Vitaa :sob: :rooster:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign:
 
@@ -97,7 +97,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 
 ## Thème
 
-RnB Drama FR et US avec de la chanson niche !
+RnB Drama FR et US avec de la chanson niche ! :sob: :earth_americas:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign: :heavy_plus_sign:
 
@@ -185,7 +185,7 @@ J'ai pleuré tellement, mais tellement de nuits
 ## Thème
 
 Les clashs... des chansons qui reprennent un morceau de RnB drama connu pour en
-faire une chanson encore plus drama :sob:
+faire une chanson encore plus drama :sob: :earth_americas:
 
 Niveau: :heavy_plus_sign: :heavy_plus_sign: :heavy_plus_sign:
 
