@@ -1,6 +1,7 @@
 # Blindtest
 
-Petite liste de blindtest \o/
+Petite liste de blindtests \o/
 
-* [RnB Drama](rnb_drama.md)
-* [Girlz And Boyz Bands](girlz_boyz_bands.md)
+* :sob: [RnB Drama](rnb_drama.md)
+* :couple: [Girlz And Boyz Bands](girlz_boyz_bands.md)
+* :nerd: [First Track](first_track.md)
