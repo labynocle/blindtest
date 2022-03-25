@@ -62,7 +62,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 * [One Direction - What Makes You Beautiful - 2011](https://www.youtube.com/watch?v=QJO3ROT-A4E)
 * [Backstreet Boys - Everybody - 1997](https://youtu.be/6M6samPEMpM?t=117)
 * [Take That - Back For Good - 1995](https://www.youtube.com/watch?v=N2ICtCO8TCw)
-* [Nsync - Bye Bye Bye - 2000](https://youtu.be/GQMlWwIXg3M?t=20)
+* [Nsync - It's Gonna Be Me - 2000](https://youtu.be/GQMlWwIXg3M?t=20)
 * [Boyzone - No Matter What - 1998](https://www.youtube.com/watch?v=7eul_Vt6SZY)
 * [Blue - All Rise - 2001](https://www.youtube.com/watch?v=RkWQDDv_qdg)
 * [New Kids On The Block - Tonight - 1990](https://youtu.be/JTo3N73hpPg?t=21)
