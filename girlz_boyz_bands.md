@@ -91,7 +91,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 * [All Saints - I Know Where It's At - 1997](https://www.youtube.com/watch?v=G4QzM9KqCQU)
 * [L5 - Etincelle - 2001](https://www.youtube.com/watch?v=BCkXUDQA7lU)
 * [Sugababes - Too Lost In You - 2003](https://www.youtube.com/watch?v=wo07t6XjNO4)
-* [Atomic Kitten - Eternal Flame - ](https://www.youtube.com/watch?v=aztY_fpjJeQ)
+* [Atomic Kitten - Eternal Flame - 2000](https://www.youtube.com/watch?v=aztY_fpjJeQ)
 
 
 # You know the lyrics
