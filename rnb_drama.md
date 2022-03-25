@@ -34,7 +34,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 * [Rihanna - Diamonds - 2012](https://youtu.be/lWA2pjMjpBs?t=54)
 * [Brandy feat Monica - The Boy Is Mine - 1998](https://www.youtube.com/watch?v=qSIOp_K5GMw)
 * [TLC - Scrubs - 1999](https://www.youtube.com/watch?v=FrLequ6dUdM)
-* [Blue Cantrell feat Sean Paul - Breathe - 2003](https://www.youtube.com/watch?v=wfTC2o05OEw&t=31s)
+* [Blu Cantrell feat Sean Paul - Breathe - 2003](https://www.youtube.com/watch?v=wfTC2o05OEw&t=31s)
 * [Mary J Blige - No More Drama - 2002](https://www.youtube.com/watch?v=em328ua_Lo8)
 * [En Vogue - Don't Let Go - 1997](https://www.youtube.com/watch?v=mwhwGmoYv1s)
 
