@@ -32,7 +32,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 
 ## Extraits
 
-* [G-Squad - Raide Dingue de Toi - 1996](hhttps://www.youtube.com/watch?v=wtwublQJceQ)
+* [G-Squad - Raide Dingue de Toi - 1996](https://www.youtube.com/watch?v=wtwublQJceQ)
 * [2 Be 3 - Donne - 1997](https://www.youtube.com/watch?v=TQ_u7uh1NgA)
 * [Alliage - Le Temps Qui Court - 1997](https://www.youtube.com/watch?v=Y1NMZ749uJ0)
 * [LinkUp - Mon Etoile - 2003](https://www.youtube.com/watch?v=kA6C3XZrJ1w)
