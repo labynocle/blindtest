@@ -118,7 +118,7 @@ On lit l'extrait et **le premier qui trouve l'interprète** gagne le point
 
 ```
 Sur la gauche, Sur la gauche
-Tout ce qui t'apprtient, est dans le carton à gauche
+Tout ce qui t'appartient, est dans le carton à gauche
 Dans le placard il ne reste que mes affaires,
 Merci de ne pas toucher à ce que j'ai acheté
 ```

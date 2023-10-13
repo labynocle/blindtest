@@ -26,6 +26,7 @@ On écoute un extrait et **le premier qui trouve l'interprète** gagne le point
 * +1 point si on a l'année de sortie à 1 an près
 
 :warning: les extraits ne sont pas forcément lancés au début du morceau
+
 :warning: les extraits ne sont pas forcément le premier morceau des artistes mais
 le premier vrai gros carton
 
